@@ -6,4 +6,4 @@ Hello, I'm Oussama Essamadi, EOussama for short.
 * [Facebook](https://www.facebook.com/oussama.essamadi)
 * [Youtube](https://www.youtube.com/channel/UCw2ptm5qXBr61Jn8QingQFQ)
 * [Disqus](https://disqus.com/by/oussamaessamadi/)
-* Reach me on Discord at **Oussama#9634**
+* Reach up to me on Discord at **Oussama#9634**
